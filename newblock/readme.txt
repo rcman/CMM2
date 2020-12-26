@@ -3,3 +3,11 @@ fine. I am going back to my shooter.
 
 Let me know if you need more info.
 RC
+
+
+
+
+
+All files are here. The one I was working on last was bnew3.bas
+
+
